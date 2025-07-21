@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **omsinghrajput778772@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/10NHu67-H0hm2XTeKELg4CgXHnGvkEbzN/view?usp=sharing](https://drive.google.com/file/d/10NHu67-H0hm2XTeKELg4CgXHnGvkEbzN/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/drive/folders/1N-4Zzm0TFw7ImESMOmAAnyWC6NhYmOSI?usp=sharing](https://drive.google.com/drive/folders/1N-4Zzm0TFw7ImESMOmAAnyWC6NhYmOSI?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
